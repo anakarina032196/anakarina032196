@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @anakarina032196
+- 👋 Hi, I’m @anakarina
   
 
 <!---
